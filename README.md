@@ -1,1 +1,0 @@
-# conceptos_basicos
